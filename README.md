@@ -1,1 +1,1 @@
-![cat-wif](https://github.com/user-attachments/assets/7e6d3212-2ebd-4970-8fd6-ed7aaf967ccf)
+![cat-wif (1)](https://github.com/user-attachments/assets/340babf0-245f-436b-bd66-8cfe57a33bcf)
